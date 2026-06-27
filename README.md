@@ -3,9 +3,8 @@
 <div align="center">
 
 " how are you doing that..... "
-⠀
-⠀
-hmm should i get my ultrafreak on instead of ultrakilling
 
+hmm should i get my ultrafreak on instead of ultrakilling
+⠀
 </div>
 <img width="1080" height="156" alt="1000076333" src="https://github.com/user-attachments/assets/e06b61b9-ae51-438e-a183-adef6f4982c9" />
