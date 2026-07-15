@@ -2,6 +2,8 @@
 
 <div align="center">
 
+↑↑ art by reclusivestar on pint as i know of 
+
 " how are you doing that..... "
 
 some random text here ahha
