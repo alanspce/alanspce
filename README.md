@@ -10,9 +10,7 @@ unlikely ill finish this profile because of school but wtv
 
 ---
 
-**BYI!!**
-
-i am actually extremely shy and have social anxiety,, i only come up to strangers when i have the courage to do so
+please note that i am actually very shy and have social anxiety,, i only come up to strangers when i have the courage to do so
 ⠀
 </div>
 <img width="1080" height="156" alt="1000076333" src="https://github.com/user-attachments/assets/e06b61b9-ae51-438e-a183-adef6f4982c9" />
