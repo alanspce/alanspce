@@ -8,7 +8,10 @@
 
 unlikely ill finish this profile because of school but wtv
 
-**BYU!!**
+---
+
+**BYI!!**
+
 i am actually extremely shy and have social anxiety,, i only come up to strangers when i have the courage to do so
 ⠀
 </div>
