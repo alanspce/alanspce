@@ -4,6 +4,8 @@
 
 <div align="center">
 
+↑ highkey do not ask what possessed me to use this image ↑
+
 " ive got no rights to take my place within the human race. "
 
 unlikely ill finish this profile because of school but wtv
